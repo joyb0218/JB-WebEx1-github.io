@@ -1,4 +1,4 @@
-Web Design Example1 - As owner of Glowbees, LLC I ran a janitorial company that held an account at an automotive manufacturing
+Web Design Example1 - As owner of Glowbees, LLC, I ran a janitorial company that held an account at an automotive manufacturing
 facility just outside Lansing, MI. This is the website I designed during that time as I was looking to expand and acquire
 new accounts.
 
